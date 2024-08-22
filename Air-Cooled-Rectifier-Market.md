@@ -1,5 +1,4 @@
 # Global Air Cooled Rectifier Market
-The adoption of advanced rectification technologies across industries around the world for better power conversion and efficiency will be the major driver for the growth in the global air-cooled rectifier market. In line with this, the following post covers an overview of the major trends, the key drivers, and the future forecast for the air-cooled rectifier market.
 
 Introduction to Air-Cooled Rectifiers
 
